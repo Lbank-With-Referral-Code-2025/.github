@@ -16,10 +16,14 @@ This combination gives traders a real edge — more capital to trade with and lo
 
 Activating your bonus is simple:
 
-1️⃣ Go to the official LBank registration page
+1️⃣ Go to the official LBank registration page "https://www.lbank.com/login/?icode=1MM5L"
+
 2️⃣ Enter 1MM5L in the referral code field
+
 3️⃣ Complete KYC verification
+
 4️⃣ Deposit funds into your account
+
 5️⃣ Start trading and watch your bonus unlock automatically
 
 From your first trade, the 50% fee discount applies automatically, giving you immediate savings.
